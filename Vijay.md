@@ -1,6 +1,6 @@
 # Introduction
 
-###C Joseph Vijay 
+### C Joseph Vijay 
 Indian politician and former actor who is currently serving as the ninth chief minister of Tamil Nadu since May 2026.
 He is the founder and president of the political party Tamilaga Vettri Kazhagam.
 
